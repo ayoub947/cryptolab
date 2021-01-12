@@ -1,3 +1,3 @@
 # cryptolab
 
-GO YO THE rabbit BRANCHE.
+GO TO THE rabbit BRANCHE.
